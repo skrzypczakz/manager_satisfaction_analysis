@@ -1,4 +1,4 @@
-# Relacja z przełożonym, a satysfakcja z pracy i chęć jej zmiany
+# Relacja z przełożonym a satysfakcja z pracy i chęć jej zmiany
 
 ## Opis projektu
 
